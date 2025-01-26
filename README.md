@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TRYCIANE
 - 👀 I’m interested in, aprender coisas novas 
-- 🌱 I’m currently learning, ligaguem c 
+- 🌱 I’m currently learning, linguagem c 
 - 💞️ I’m looking to collaborate on, me de dicas
 - 📫 How to reach me, costatry79@gmail.com
 - 😄 Pronouns:try 
